@@ -1,14 +1,18 @@
-"Cacha' victor santisteban campos 18 anos de edad mejor conocido como el bardero cacha todo por tirarle a ivan boss att: 616 o traficantes y doxeo por Zuta y ivan boss sigue tirando mierda a los de 616 sigue diciendo mierdas \
-puto cesar acuerdate que tu papa su numero de su papa es +52 866 636 4146 
-CURP SAC070622HCLNMCA6
-RFC SACV070622U36 
-Direccion donde vive actualmente calle nicaragua numero 227 guadalupe 
-Codigo postal 25750 
-ciudad monclova 
-Estado coahuila  
-MAMA DE CACHA 
-Karina Campos Abrego 
-11/02/2007 
-50 anos 
-CURP CAAK750211MCLBR06 
-RDC
+Primero me dieron alas, y ahora me quieren parar
+Yo no soy mono de alambre, que cuerda le puedan dar
+Yo no soy Juan Colorado, pero soy de Michoacán
+¿Cuánto costará la sierra?, de Michoacán a Colima
+Yo traigo entre ceja y ceja, el Agüaje y Agülillas
+Ahí los gallos son finos y las muchachas bonitas
+Ya no gasten en radares, ni destrozando mis pistas
+Yo soy un ave nocturna que aterriza en cualquier milpa
+Además el día que caiga, caerán muchos de allá arriba
+Me sacaron de Chirona porque así les convenía
+Ya les vino grande el saco y me borran de la lista
+Nomas vuelvo de Chicago ya les pagaré esas cuitas
+Por una de dos traidores tuve un fracaso en Uruapan
+También mi linda borrada me falló allá por Sahuayo
+Yo soy Tarasco efectivo pronto les daré su pago
+Ya no gasten en radares, ni destrozando mis pistas
+Yo soy un ave nocturna que aterriza en cualquier milpa
+Además el día que caiga, caerán muchos de allá arriba
